@@ -4,4 +4,4 @@ Kann das wirklich sein, dass man einen anderen Account annhemen kann?
 
 Schaut wirklich so aus, als ob ...
 
-Klaus wollte hier auch mal mit machen.
+Klaus wollte hier mal mit machen.
